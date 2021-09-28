@@ -1,0 +1,2 @@
+# Notes day 1
+
